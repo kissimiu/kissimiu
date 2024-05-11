@@ -4,5 +4,5 @@
 
 прив !! ru/eng
 
-![Uploading ensemble-stars-enstars (1).gif…]()
-![Uploading sunday-oak-honkai.gif…]()
+
+![sunday-oak-honkai](https://github.com/kissimiu/kissimiu/assets/147923704/e4d70af4-84ba-443c-8e75-a9457ebeacf2)
