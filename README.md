@@ -1,10 +1,11 @@
 ### meoww me!!!
 ![a7319d169c061ca9b11a3aed8f76a067cfd1a1aar1-320-40_00](https://github.com/kissimiu/kissimiu/assets/147923704/aad5bbce-afc9-463e-aeca-1415fd84a789)
+![tsukasa-suou-tsukasa-enstars (1)](https://github.com/kissimiu/kissimiu/assets/147923704/2d292406-e4a1-4c58-8200-b75346bd5f9f)
 
 !! ru/eng
 I have no pronouns :р
 playing hsr\enstars a lot 
-![tsukasa-suou-tsukasa-enstars](https://github.com/kissimiu/kissimiu/assets/147923704/a2b2368e-6f03-4bff-9784-6af76c652e49)
+
 
 im so silly sorry mew я люблю англиский
 
