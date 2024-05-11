@@ -1,7 +1,8 @@
 ### meoww
 
-![Uploading a7319d169c061ca9b11a3aed8f76a067cfd1a1aar1-320-40_00.gif…]()
+![a7319d169c061ca9b11a3aed8f76a067cfd1a1aar1-320-40_00](https://github.com/kissimiu/kissimiu/assets/147923704/bd454631-40dd-441a-8cd5-c01896714e88)
 
+![Uploading a7319d169c061ca9b11a3aed8f76a067cfd1a1aar1-320-40_00.gif…]()
 
 Here are some ideas to get you started:
 
