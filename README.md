@@ -4,8 +4,9 @@
 !! ru/eng
 I have no pronouns :р
 playing hsr\enstars a lot 
+![tsukasa-suou-tsukasa-enstars](https://github.com/kissimiu/kissimiu/assets/147923704/a2b2368e-6f03-4bff-9784-6af76c652e49)
 
-im so silly sorry mew
+im so silly sorry mew я люблю англиский
 
 sunhillenjoyer i love them
 also i kissing wataru a lot he's my husband, tsukasa my baby <33
