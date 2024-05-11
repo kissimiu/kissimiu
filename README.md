@@ -2,7 +2,6 @@
 
 ![Uploading a7319d169c061ca9b11a3aed8f76a067cfd1a1aar1-320-40_00.gif…]()
 
-<!-
 
 Here are some ideas to get you started:
 
