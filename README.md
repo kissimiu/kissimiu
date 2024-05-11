@@ -8,6 +8,7 @@ playing hsr\enstars a lot
 
 
 im so silly sorry mew я люблю англиский
+![Uploading tsukasa-suou-suou-tsukasa.gif…]()
 
 sunhillenjoyer i love them
 also i kissing wataru a lot he's my husband, tsukasa my baby <33
