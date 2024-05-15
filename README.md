@@ -4,7 +4,9 @@
 
 !! ru/eng
 I have no pronouns :р
+
 playing hsr\enstars a lot 
+
 шарю за игры от studio investigrave !
 
 
