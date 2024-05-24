@@ -1,7 +1,8 @@
 ### hi прив
 
 ![tsukasa-suou-tsukasa-enstars (1)](https://github.com/kissimiu/kissimiu/assets/147923704/2d292406-e4a1-4c58-8200-b75346bd5f9f)
-![Uploading image.png…]()
+![image](https://github.com/kissimiu/kissimiu/assets/147923704/7cdca62f-9359-4b41-abae-44d7fd47ed24)
+
 
 !! ru/eng
 I have no pronouns :р
