@@ -12,6 +12,7 @@ enstars / hsr player
 
 aventio sunhill cotag vincerody me\wataru <--kiss ^_^
 
+могу быть иногда афк в пт!! можете подходить !! не против новых знакомств c+h
 im so silly 
 
 
