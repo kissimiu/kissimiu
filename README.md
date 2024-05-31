@@ -6,13 +6,12 @@
 
 !! ru/eng
 I have no pronouns :р
+enstars / hsr player
 
-playing hsr\enstars a lot 
-
-шарю за игры от studio investigrave !
-
+шарю за игры от studio investigrave !!!
 
 
-im so silly sorry mew 
+
+im so silly 
 
 
