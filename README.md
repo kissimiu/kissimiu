@@ -10,7 +10,7 @@ enstars / hsr player
 
 шарю за игры от studio investigrave !!!
 
-
+aventio sunhill cotag vincerody me\wataru <--kiss ^_^
 
 im so silly 
 
